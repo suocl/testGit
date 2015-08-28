@@ -1,3 +1,3 @@
-please read me!!
+read me!!
 modify by scl
 modify by scl 1
